@@ -34,6 +34,6 @@
 ---
 
 ### 📬 Connect With Me
+- 💼 **LinkedIn:** [linkedin.com/in/attou-mustapha](https://www.linkedin.com/in/attou-mustapha)
 - 📧 **Professional Email:** [attou.mustapha.pro@gmail.com](mailto:attou.mustapha.pro@gmail.com)
-- 💼 **LinkedIn:** [linkedin.com/in/attou-mustapha](https://linkedin.com) *(profiling in progress)*
 - 🌐 **Location:** Open to Relocation across Canada (Alberta, Ontario, New Brunswick, Quebec)
